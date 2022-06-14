@@ -1,6 +1,8 @@
 # 💫About Me :
 🥇I am currently exploring and learning new technologies💖
+
 ✨I am working on my problem solving skills
+
 🎉I like to code, collaborate and work with teams, deliver my 
      knowledge and to improve my self bit by bit✔
 
